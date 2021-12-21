@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SravanMudide
 - 👀 I’m interested in Information Tech
-- 🌱 I’m currently studyin my final sem in Master in Computer Networks & System Secuirty
+- 🌱 I’m currently studying my final sem in Master in Computer Networks & System Secuirty
 - 💞️ I’m looking to for fulltime positions in IT 
 - 📫 You can reach me on +447424049996 & Email : sravan.mudide76@gmail.com
 
